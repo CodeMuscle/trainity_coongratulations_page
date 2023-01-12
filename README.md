@@ -1,1 +1,1 @@
-# trainity_coongratulations_page
+# trainity_congratulations_page
